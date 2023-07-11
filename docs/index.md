@@ -26,6 +26,14 @@ __Brigham Young University - Idaho__, Rexburg, ID
 
 - 3.6 Major GPA
 
+- Student Accounting Society – Jan 2022 - Current
+
+- Minor in Business Analytics
+
+- Data Science Certificate
+
+- Business Fundamentals Certificate
+
 
 ## Related Experience
 
@@ -50,7 +58,7 @@ __Brigham Young University Idaho - Student Records and Registration Office__, Re
 ### Sales Representative	
 
 `January 2020 - June 2020`
-__Spark Marketing__
+__Spark Marketing__, Rexburg, ID
 
 - Displayed social selling and client engagement by identifying customer needs and negotiating all contracts with prospective clients resulting in increased clientele
 - Contributed strong leadership skills in organizing and working with a team, and helping them stay focused
@@ -58,7 +66,6 @@ __Spark Marketing__
 
 ## Leadership/Interests/Skills/Awards 
 
-`January 2022 - July 2023`
 
 __Microsoft Excel Maestro__
 
