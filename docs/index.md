@@ -26,13 +26,11 @@ __Brigham Young University - Idaho__, Rexburg, ID
 
 - 3.6 Major GPA
 
-- Student Accounting Society – Jan 2022 - Current
+- Student Accounting Society – January 2022 - July 2023
 
 - Minor in Business Analytics
 
-- Data Science Certificate
-
-- Business Fundamentals Certificate
+- Certificates in Data Science and Business Fundamentals
 
 
 ## Related Experience
