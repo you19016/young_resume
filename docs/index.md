@@ -22,6 +22,8 @@ __Boise State University__, Boise, ID
 `2019-2023`
 __Brigham Young University - Idaho__, Rexburg, ID
 
+- Master of Science in Accounting
+
 - Bachelor of Science in Accounting
 
 - 3.6 Major GPA
