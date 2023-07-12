@@ -17,12 +17,11 @@ title: Devon Young's Resume
 `2023-2024`
 __Boise State University__, Boise, ID
 
+
 - Master of Science in Accounting
 
 `2019-2023`
 __Brigham Young University - Idaho__, Rexburg, ID
-
-- Master of Science in Accounting
 
 - Bachelor of Science in Accounting
 
